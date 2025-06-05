@@ -1,24 +1,25 @@
-## main info
+## yo ૮(ྀི づ 𖥦◝ )ྀིა
 
-♪♫~ --> heyo call me elliot / dave
+⁝⠀ call me dave ![tumblr_466a6004ef68aace3d9fdd17f1c26af9_12439809_75](https://github.com/user-attachments/assets/13401232-d4e2-47e2-a6dd-d8b2786bbf9d)
 
-♪♫~ ---> major warning i have autism , adhd , pyschosis , depression , dyslexia , NPD ( narcisstic personality disorder ) , and other things
-♪♫~ --> dont sterotype me even if i Narcisstic personaily disorder 
+⁝⠀we / he / time / etc
 
-♪♫~ --> proshitters dni espically if you ship stridercest ( dave x bro/dirk ) insta block i dont fw that shit
+⁝⠀ **dave strider irl** 
 
-♪♫~ --- > i love horror movies like scream, halloween , friday13th , etc 
+⁝⠀ mentally ill adhd , autism , dyslexia , pyschosis , major depressive disorder , etc 
 
-♪♫~ ----> LINKS : https://rentry.co/BUILDERMANSPIZZA , https://pronouns.cc/@d.strides
+⁝⠀ i have a Matespritship so yeah
 
-✮⋆˙ --- > dont flirt with me man 
+⁝⠀homestuck and forsaken are my main fandoms
 
-✮⋆˙ --> dave strider irl 
+⁝⠀ links : https://pronouns.cc/@d.strides , https://d-strides.straw.page/ , https://rentry.co/BUILDERMANSPIZZA
 
-## PONY TOWN INFO
+⁝⠀ huge horor movie , games , etc fan
 
-♪♫~ - c + h ( cuddle + hide) is fine , w2i ( whisper to interact ) im always offtab and shit
+⁝⠀ proshitters , ableist , racist , LGBTQ+Phobis, True crime community , zoos , pedos , groomers , etc are main dnis , not sorry.
 
-♪♫~ - i sit near trees , bakery , libary etc
+⁝⠀ my main show interest are (that isn't horror) , spooky month and eddsworld
 
-♪♫~ - mostly dressed as forsaken , or homestuck if anything else im matching or its just my other hyperfixation / special interest
+⁝⠀ slow as hell be paitent espically since i have dyslexia 
+
+![dave-strider](https://github.com/user-attachments/assets/9d443798-410f-4f7b-af11-13aa3947b8ea)
