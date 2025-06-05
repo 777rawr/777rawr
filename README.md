@@ -22,4 +22,18 @@
 
 ⁝⠀ slow as hell be paitent espically since i have dyslexia 
 
+⁝⠀**i need a karkat to my dave please please please this could be us** ![dave-and-karkat](https://github.com/user-attachments/assets/0490408d-c2f2-4780-b165-3aa2951e21ed)
+
+⁝⠀ im also the raddest guy ever 
+
+⁝⠀ i play a lot of games  mainly roblox and minecraft but if i have your game we can play it
+
+⁝⠀i have a little sister and i love her a lot ( see thats why you should be the karkat to my dave ( this is a beg at this point )
+
+⁝⠀**STRIDERCEST / STRILONDESCEST DNI ( rose x dave / bro x dave / dirk x rose / bro x rose / dirk x dave ) dni dude you make me uncomfortable**
+
+⁝⠀ i can rap really good trust me ( i absolutely can't rap but thats ok ) 
+
+⁝⠀ homestuck weirdos dni , uhm
+
 ![dave-strider](https://github.com/user-attachments/assets/9d443798-410f-4f7b-af11-13aa3947b8ea)
