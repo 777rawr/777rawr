@@ -12,7 +12,7 @@
 
 ⁝⠀homestuck and forsaken are my main fandoms
 
-⁝⠀ links : https://pronouns.cc/@d.strides , https://d-strides.straw.page/ , https://rentry.co/BUILDERMANSPIZZA
+⁝⠀ links : https://pronouns.cc/@d.strides , https://d-strides.straw.page/ , https://rentry.co/d-stridess
 
 ⁝⠀ huge horor movie , games , etc fan
 
