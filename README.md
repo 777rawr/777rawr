@@ -8,6 +8,8 @@
 
 ⁝⠀ mentally ill adhd , autism , dyslexia , pyschosis , major depressive disorder , etc 
 
+: NEED FRIENDS? NO WORRY! CLICK THIS STRAWPAGE https://burgerexpl0tzz.straw.page/
+
 ⁝⠀ i have a Matespritship so yeah
 
 ⁝⠀homestuck and forsaken are my main fandoms
