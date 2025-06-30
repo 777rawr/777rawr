@@ -1,41 +1,41 @@
-## yo ૮(ྀི づ 𖥦◝ )ྀིა
+## ఇ ◝‿◜ ఇ 
 
-⁝⠀ call me dave ![tumblr_466a6004ef68aace3d9fdd17f1c26af9_12439809_75](https://github.com/user-attachments/assets/13401232-d4e2-47e2-a6dd-d8b2786bbf9d)
+꒱ YOU CAN CALL ME : 7 , doom , Elliot , or anyone you meet me as I'm not picky.
 
-⁝⠀we / he / time / etc
+꒱ HE / WE PRONOUNS
 
-⁝⠀ **dave strider irl** 
+꒱ ![image](https://github.com/user-attachments/assets/3b493f33-d6a6-44c0-8107-e66970c18d69)
 
-⁝⠀ mentally ill adhd , autism , dyslexia , pyschosis , major depressive disorder , etc 
 
-: NEED FRIENDS? NO WORRY! CLICK THIS STRAWPAGE https://burgerexpl0tzz.straw.page/
+꒱ ![BISEXUAL-FLAG](https://github.com/user-attachments/assets/57faf41a-5764-47a4-b351-8f3314b81109) , ![greysexual-flag](https://github.com/user-attachments/assets/edb335fe-083a-4bcc-96a6-976399d9cc7e)
 
-⁝⠀ i have a Matespritship so yeah
 
-⁝⠀homestuck and forsaken are my main fandoms
+꒱ WARNING : i have social anxiety , ADHD , AUTISM , NPD ( guys i am not a bad person cause of this) , depresion , and i have **DYSLEXIA**. 
 
-⁝⠀ links : https://pronouns.cc/@d.strides , https://d-strides.straw.page/ , https://rentry.co/d-stridess
+꒱ I'm slow, please be careful.
 
-⁝⠀ huge horor movie , games , etc fan
+꒱ THIS IS A MAJOR WARNING : I can be agressive , but i do not mean it in a mean way.
 
-⁝⠀ proshitters , ableist , racist , LGBTQ+Phobis, True crime community , zoos , pedos , groomers , etc are main dnis , not sorry.
+꒱ ![kang-dae-ho-squid-game](https://github.com/user-attachments/assets/cb1a6a14-aa04-443c-891f-315721f3a7bb)
 
-⁝⠀ my main show interest are (that isn't horror) , spooky month and eddsworld
+꒱ **Proshitters, TRUE CRIME COMMUNITY(TCC)** , ABLEIST , LGBTQ+PHOBIC , ZOOS , GROOMERS , PEDOS , BRONYS ,  MAPS DNI.
 
-⁝⠀ slow as hell be paitent espically since i have dyslexia 
+꒱ MAJOR DNI : **NAMGYU X MG COIN (124 X 333) , kim jun-hee x anyone ( sorry not ) , MINSU X THANOS ( 125 X 230 ) GYEONG-SU X THANOS ( 256 X 230 )**
 
-⁝⠀**i need a karkat to my dave please please please this could be us** ![dave-and-karkat](https://github.com/user-attachments/assets/0490408d-c2f2-4780-b165-3aa2951e21ed)
+꒱ I'm a goober snoober ^_^ ( BMF >< )
 
-⁝⠀ im also the raddest guy ever 
+꒱ ![thanos-and-namgyu-v1-png](https://github.com/user-attachments/assets/bdda2713-8a85-4c40-8f1e-19a9e5c8c2d9)
 
-⁝⠀ i play a lot of games  mainly roblox and minecraft but if i have your game we can play it
+꒱ LINKS : WORK IN PROGRESS >_<........
 
-⁝⠀i have a little sister and i love her a lot ( see thats why you should be the karkat to my dave ( this is a beg at this point )
+꒱ ME BTW >_< - ![nam-gyu-squid-game](https://github.com/user-attachments/assets/4e89990d-72d7-4c73-8782-c4f1af959ec5)
 
-⁝⠀**STRIDERCEST / STRILONDESCEST DNI ( rose x dave / bro x dave / dirk x rose / bro x rose / dirk x dave ) dni dude you make me uncomfortable**
+## FOR PONY TOWN
 
-⁝⠀ i can rap really good trust me ( i absolutely can't rap but thats ok ) 
+ᛝ C + H / W2I ( CUDDLE + HIDE / WHISPER 2 INTERACT ) is fine!
 
-⁝⠀ homestuck weirdos dni , uhm
+ᛝ I'm most likely off tab so go ahead and hit me up! ^_^
 
-![dave-strider](https://github.com/user-attachments/assets/9d443798-410f-4f7b-af11-13aa3947b8ea)
+ᛝ i change my ponys a lot cuz i get bored or want to try a new style.
+
+ᛝ i loveeee when people cuddle / sit next 2 me :))
