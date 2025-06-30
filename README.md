@@ -26,7 +26,7 @@
 
 ꒱ ![thanos-and-namgyu-v1-png](https://github.com/user-attachments/assets/bdda2713-8a85-4c40-8f1e-19a9e5c8c2d9)
 
-꒱ LINKS : https://rentry.co/777rawr , WORK IN PROGRESS >_<........
+꒱ LINKS : https://rentry.co/777rawr , https://pronouns.cc/@777tigers , WORK IN PROGRESS >_<........
 
 ꒱ ME BTW >_< - ![nam-gyu-squid-game](https://github.com/user-attachments/assets/4e89990d-72d7-4c73-8782-c4f1af959ec5)
 
